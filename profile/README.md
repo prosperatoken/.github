@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+We’re transforming the way the world invests — one token at a time.Prospera delivers next-generation tools to unlock access to global wealth:
+
 <!--
 
 **Here are some ideas to get you started:**
